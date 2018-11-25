@@ -3,6 +3,7 @@
 Группа: 10 - МИ - 5
 
 Электронная почта: kkirill.psarev@gmail.com
+
 VK: https://vk.com/psarevkonstantinovich
 
 Туристический гидд "Знакомство с любимым городом" – заявка на ИТ-проек
